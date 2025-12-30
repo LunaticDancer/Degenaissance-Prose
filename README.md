@@ -11,3 +11,4 @@ One shot stories in order of publishing:
 - [Old Man's Companion](One%20Shots/Old%20Man's%20Companion.md)
 - [Pure Evil](One%20Shots/Pure%20Evil.md)
 - [Among The Fairies](One%20Shots/Among%20The%20Fairies.md)
+- [Profane Miracle](One%20Shots/Profane%20Miracle.md)
