@@ -1,0 +1,32 @@
+Gertruda zamknęła oczy i wczuła się w chłód przeszywający jej ciało. Drzewa dookoła niej były już prawie łyse. Jesień. Wiedziała czego się spodziewać.
+
+Johan nie mógł pojąć tego co się dzieje przed jego oczami. Dlaczego jego matka płakała tak donośnie w trakcie gdy jego babcia przyodziewała jej najlepszy strój? Jego ojciec stał obok niego, z dłonią na jego ramieniu, jego twarz pozornie bez emocji. 
+"Tato, co się dzieje?" 
+Ojciec zabiera głos po chwili wahania. "Twoja babcia idzie do lasu by żyć wśród wróżek." 
+"Wśród wróżek? Ale czemu? Zawsze ostrzegaliście mnie przed ich psikusami." Chłopiec nie był w stanie rozwikłać tej nietypowej sytuacji. 
+"Przed nami sroga zima. Nie starczy jedzenia dla nas wszystkich. Wróżki zaopiekują się najstarszym członkiem naszej rodziny, ale w zamian już nigdy jej nie zobaczymy." Jego szczęki zacisnęły się subtelnie, zbyt subtelnie żeby chłopiec był w stanie zauważyć. Matka, oparta bezwładnie o stół kuchenny, była zbyt pochłonięta żałobą żeby wykrztusić z siebie słowo. Gertruda, staruszka, sumiennie pokrywała swoją sukienkę różnorodnymi ozdobnymi płachtami. Opakowana niczym prezent, była gotowa do drogi. Spojrzała na swoją rodzinę z sentymentalnym uśmiechem. 
+"Cóż za piękny dom. Zanim pójdę, chcę żebyście wiedzieli, że jestem zadowolona z życia które wiedliśmy razem. Dzieci i wnuków których wychowałam." 
+"Nie idź!" Matka rzuciła się w jej objęcia z desperacją. 
+Gertruda zwróciła ku niej swoje życzliwe spojrzenie. "Lauro, skarbie. Wiesz że nie jest nam to dane. Gdy natura odmawia łaski, trzeba dokonać poświęceń. Musisz nieść tę gorycz w sercu, dla dobra swojej rodziny. Moja cudowna córeczko." Jej fasada słabnie na moment, jej głoś drży przez moment w tracie gdy jej dłoń pieści policzek córki po raz ostatni. Mina Laury wyrażała jedynie gorycz i przegraną. Wiedziała co należy zrobić, ale nie mogła się z tym pogodzić. 
+Starsza kobieta wstała i podeszła do drzwi, powoli i z godnością.
+"Żegnajcie. Oby zima była dla was łaskawa." 
+
+Mróz czy głód - zastanawiała się które dopadnie ją pierwsze. Nie miała już niczego oprócz pięknych szmatek i miłych wspomień. Czuła ulgę że dziecko nie poznało prawdy na temat celu jej wyprawy - by zgubić się w lesie i umrzeć. By ulżyć zapasom jedzenia. Ostatnia lekcja odpowiedzialności. 
+Minęły trzy dni. Na krzakach wciąż udawało jej się znależć borówki. Rzeka jeszcze nie zamarzła. Mimo to miała przeczucie - świat był na skraju białego pochówku. Wspominała swojego męża, zmarłego od ośmiu lat. Znaleziony popołudniem na polu. Lepszy los niż to co najpewniej ją spotka.  
+Spacerowała powoli i bez celu, wystarczająco blisko rzeki by nie stracić jej z oczu. Po za dostępem do wody, zależało jej na tym by jak najbardziej oddalić się od domu. Ostatnie czego chciała, to żeby jej trup został znaleziony przez rodzinę. 
+W trakcie gdy jej oparty kijem krok niósł ją naprzód, jej umysł pogrążał się w zamyśleniu. Stare wspomnienia, dziwne przeczucia. Czuła się jakby wyczerpała wszystkie możliwe myśli. Jej oczy obserwowały las, ten sam las który znała całe życie, tak jakby widziała go po raz pierwszy. Fantazyjne rozgałęzienia drzew, zawirowania płatków śniegu - zadziwiały ją i oczarowywały. Oto świat z którym się żegnała - piękny, znajomy, przerażający. Uśmiechnęła się do siebie - może to wcale nie jest najgorszy los, znależć swój grób wśród tych myśli. Ponownie zjednoczona z cudem natury, otrzeźwiona przez nieuniknioną rzeczywistość. 
+W trakcie swojego błogiego delirium, zapomniała o ciele które powinna kontrolować, przez co zemdlała z przemęczenia, upadając na bok. 
+
+Obudziła się z plecami opartymi o drzewo. Ktoś ją znalazł? Jej oczy nie były w stanie się skupić, lecz mimo to szybko dostrzegła niską sylwetkę przed sobą. Dziecko. Jego strój był dziwaczny - wysokie skórzane buty, lniana koszula i spodnie zaciśnięte pasem, a na wierzchu wielki futrzany płaszcz pokrywający większość jego figury. Jeszcze bardziej przyciągające uwagę były jego włosy - złote runo fantazyjnych zawijasów, wijące się w wietrze, zakrywająca większość jego twarzy niczym obłok. Spod jego loków dało się zauważyć urocze pucułowate policzki, mały zadarty nos i pojedyncze błękitne oko. Wyglądał jakby miał około 10 lat. Uśmiechnął się do niej, promieniując życzliwością. 
+"Witaj spowrotem wśród żywych Gertrudo."
+Staruszka była zdezorientowana, miała trudności z uwierzeniem że to dzieje się naprawdę. 
+"Kim jesteś?" 
+"Jestem Wiecznym Dzieckiem, znanym również jako Hans w poprzednim życiu. Mogę wyglądać młodo, lecz nie daj się zwieść - przeżyłem więcej zim niż ty. Wyczułem twoje myśli pełne dziecinnej ciekawości i podziwu, więc odszukałem Cię na ratunek. Witaj w mojej cudownej krainie." Rozłożył ramiona, przekierowując tym jej uwagę na zielony ogród w którym się znajdowali. Ogród który powinien być niemożliwy o tej porze roku. Pomimo dyskomfortu w obecności nienaturalnego zjawiska, postanowiła zachować spokój. 
+"Jak to jest w ogóle możliwe?" 
+"To dość proste - kocham świat, a świat się odwzajemnia. Wystarczy dogłębie wierzyć." 
+"A co z Tobą? Co się stało? Ciągle nie rozumiem." 
+"Około sto zim temu, może nawet dawniej, tatuś wysłał mnie bym żył wśród wróżek - więc wyruszyłem. Gdy wróżki mnie odnalazły, powiedziały mi że tata zrobił coś złego wysyłając mnie tutaj zamiast idąc samemu, ale i tak się mną zaopekowały. Bawiłem się i tańczyłem, lata mijały, lecz zabawa wciąż trwała - mogłem się bawić tak długo jak chciałem." 
+Gertruda oniemiała po tym co usłyszała - jego własny ojciec wysłał go na pewną śmierć, i nie byłoby go tu gdyby nie litość wróżek spowodowana jego haniebnym grzechem wobec tradycji. 
+"Nie ciekawi Cię jak to jest być dorosłym?" 
+"Trochę ciekawi, ale w głębi serca wiem że jeżeli dorosnę, ten raj się zakończy. Nigdy nie dorosnąć jest moim obowiązkiem. Czyż chronienie niewinności nie jest pospolitym pragnieniem wśród ludzi?" Chłopiec postanowił zabawić się poprzez tupanie z impetem, a ziemia pod nim topniała niemal natychmiast, zupełnie jakby był żywym promieniem słońca. Gdy już pobawił się wystarczająco, znowu odwrócił się do niej. "Czasem jest tu samotnie, wiesz? Jestem tu tylko ja i wróżki. Ale czasami ktoś inny zostaje wysłany do lasu i mam wtedy szansę nawiązać nową przyjażń. Co ty na to Gertrudo? Chcesz się ze mną bawić dopóki ciało odmówi posłuszeństwa?" 
+Uśmiechnęła się powoli, jej dezorientacja zastąpiona błogim zdumieniem. Pojedynczym skinieniem porzuciła wiele ciężarów. 
